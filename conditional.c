@@ -1,0 +1,26 @@
+// JEET NE APVANA
+
+// 84550
+
+// 32000
+// 900
+// 4000
+// 7000
+// 25000
+// 4000
+// 7000  -  PAPA PASE THI LEVANA ROLL NA APA E.
+
+// 80000
+
+// MEET NE APA
+// 2000
+// 4000
+// 5000
+// 3360  JAY SHIROYA
+// 6000  NIRAV NE APA
+//  ----------
+//  20000 TOTAL
+
+// NOT FOUND
+
+// 1400 HOTEL BILL
